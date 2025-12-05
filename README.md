@@ -21,4 +21,4 @@
 
 ### 📝 结果
 
-![](C:\Users\Gyx05\AppData\Roaming\marktext\images\2025-12-05-14-02-57-image.png)
+![Uploading 微信图片_2025-12-05_140608_272.png…]()
